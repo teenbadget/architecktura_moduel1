@@ -1,1 +1,0 @@
-# architecktura_moduel1
